@@ -6,6 +6,6 @@ DroidKit is a freemium licensed data recovery program that can immediately save 
 
 
 
-## [🚀💹🎉DroidKit For PC](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉DroidKit For PC](https://tinyurl.com/ycx9cmnc)
 
-## [🚀💹🎉DroidKit For Windows            ](https://tinyurl.com/5n8xttf6)
+## [🚀💹🎉DroidKit For Windows            ](https://tinyurl.com/ycx9cmnc)
